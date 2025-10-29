@@ -1,2 +1,1 @@
-# Logo_HungerMC
-LOGO
+HungerMC LOGO AND PHOTOS
